@@ -91,7 +91,7 @@ Press `Ctrl+b` and then `d`
     ─「 ᴄʀᴇᴅɪᴛs 」─
 </h3>
 
-- <b>[ᴀɴᴏɴʏᴍᴏᴜs](https://t.me/yogi_sehlangia)  
+- <b>[ᴀxᴠ](https://t.me/yogi_sehlangia)  
 - <b>[ᴄᴏᴘʏ](https://t.me/th3_kisaki)  
 
 
